@@ -1,0 +1,1 @@
+O curso tá bem legal até o momento. Ele dá uma base bacana, mas é preciso sempre se aprofundar em cada conceito novo e ter a certeza de que eles foram absorvidos e aprendidos. :)
